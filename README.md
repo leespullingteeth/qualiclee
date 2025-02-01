@@ -1,1 +1,1 @@
-                  alpha sigma prestiege brown skin 9000 lee aka elmo!?                          
+https://cdn.discordapp.com/attachments/1023651956767600640/1322582151010586666/IMG_1491.gif?ex=679ee1dd&is=679d905d&hm=9585cd1116ae6488f1b1f6278f3b09f0c4403e83e0d212e05707e208faf8d9e7&                        
