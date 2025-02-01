@@ -1,5 +1,5 @@
 
-![image](https://github.com/user-attachments/assets/ecb95b7e-649d-45e2-aa65-89eabf6453a6)
+
 
                                      ░R░e░t░u░r░n░a░l░
                                   ░S░O░ ░S░H░O░W░ ░M░E░,░
