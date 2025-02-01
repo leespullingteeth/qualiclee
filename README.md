@@ -1,1 +1,3 @@
-https://cdn.discordapp.com/attachments/1023651956767600640/1322582151010586666/IMG_1491.gif?ex=679ee1dd&is=679d905d&hm=9585cd1116ae6488f1b1f6278f3b09f0c4403e83e0d212e05707e208faf8d9e7&                        
+![image](https://github.com/user-attachments/assets/ad2fb939-1cbf-418a-82fe-8c5ecf1b058a)
+![image](https://github.com/user-attachments/assets/ecb95b7e-649d-45e2-aa65-89eabf6453a6)
+
