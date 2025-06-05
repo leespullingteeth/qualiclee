@@ -1,5 +1,3 @@
-   this is a work in-progress im never doing...
+work in prog . . .
+![image](https://github.com/user-attachments/assets/43d6f9d0-a429-406e-acc8-693dd35a9930)
 
-
-
-![image](https://github.com/user-attachments/assets/444d4d1d-997f-4aef-9146-aa8568fcfe88)
